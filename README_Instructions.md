@@ -1,5 +1,5 @@
 # Paramount Limited Partnership
-Download the two files, Limited Partnership Agreement and Private Placement Memorandum, review, sign, and mail to:
+Download the two files- Limited Partnership Agreement and Private Placement Memorandum, review, sign, and mail to:
 
 Robert DeAveiro,
 4 Athena Ct,
